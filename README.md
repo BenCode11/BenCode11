@@ -1,0 +1,5 @@
+- 👋 Hello, I’m @BenCode11
+- 👀 I’m interested in FPS shooting video games
+- 🧑‍💻 I’m currently learning C+++
+- 🤝 I’m looking to collaborate on Roblox
+- 📫 How to reach me: Banana#4603 on Discord 
